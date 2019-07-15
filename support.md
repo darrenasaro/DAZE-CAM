@@ -1,3 +1,3 @@
 ## SUPPORT
 
-Contact me at daze.cam.support@gmail.com or DM @daze.cam on instagram 
+Contact me at daze.cam.contact@gmail.com or DM @daze.cam on instagram 
